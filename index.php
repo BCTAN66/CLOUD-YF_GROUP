@@ -1,1 +1,1 @@
-Hi i AM GAY
+bc TAn is Gay
